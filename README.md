@@ -1,6 +1,6 @@
 # Techwithwarriors-Generative-AI-Internship-Tasks
 
-Internship Tasks link, Generative Ai Internship Tasks:
+Internship Tasks link, Generative AI Internship Tasks:
 
 https://www.canva.com/design/DAGMZmraHq4/nr7aFs40WPZCnLdmLHddgA/edit
 
